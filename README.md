@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Drrobot I am a noob hacker I enjoy to shear my projectل
+- سلام دکت ربات هستم و امیدوارم تجروبه هام به کارتون بیاد
+- hallo ish bin drrobot
