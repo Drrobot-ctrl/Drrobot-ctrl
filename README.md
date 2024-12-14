@@ -1,3 +1,4 @@
-- 👋 Hi, I’m Drrobot I am a noob hacker I enjoy to shear my projectل
-- سلام دکت ربات هستم و امیدوارم تجروبه هام به کارتون بیاد
-- hallo ish bin drrobot
+- 👋 Hi, i am sh-m i am 13 yearold
+- i am from iran🇮🇷🇮🇷🇮🇷🇮🇷
+- i trying to not to be a scriptkiddie whet         makeing my own hacking tool 🧑‍💻
+- and i enjoy to share my project
